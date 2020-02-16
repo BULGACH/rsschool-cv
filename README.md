@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://BULGACH.github.io/rsschool-cv/cv
